@@ -1,4 +1,4 @@
-### Hi there, my name is Fernando Gomes. 👋
+### Hi there,👋
 Is good to have you here, Welcome!!! <br>
 🌱 I’m currently learning ...
 
